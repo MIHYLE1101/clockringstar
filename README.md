@@ -17,6 +17,4 @@ I wish, this'll be a successful first step of my future history.
 Have a good luck.
 
 
-2022.07.06.
-
-- MIHYLE -
+- 2022.07.06. MIHYLE -
