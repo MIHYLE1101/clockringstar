@@ -4,7 +4,7 @@ My personal place to record anything :)
 
 T his is my personal place.
 
-I'm not good at english, same as many ground of studies. Frankly speaking, I am well know, the english word on this pages are also likely to grammatically messed up and wrong.
+I'm not good at english, same as many ground of studies. Frankly speaking, I am well aware, the english word on this pages are also likely to grammatically messed up and wrong.
 
 But I'm on the way to be better.
 
